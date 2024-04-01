@@ -7,3 +7,12 @@
 - Building the PHAse Space MApping experiment at West Virginia University to push the boundaries of basic plasma physics research
 - Continuing my passion for science education from the American Physical Society conference halls to middle school classrooms in West Virginia
 - Figuring out how to turn complicated processes such as spectroscopy into fun and educational video gameplay mechanics
+
+
+
+
+
+
+
+EMAIL: matthewjlazo@gmail.com
+LINKEDIN: https://www.linkedin.com/in/matthewlazo1999/
